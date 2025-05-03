@@ -11,3 +11,21 @@ Meaning:
 There is no might nor power except with Allah.
 ```
 <img src="assets/la_hawla.jpg" alt="Dua in Arabic" width="100%" />
+
+```
+Allah is the Greatest.
+Allah is the Greatest.
+
+I bear witness that there is none worthy of workshp except Allah.
+
+I bear withness that Muhammed (SAW) is the Messenger of Allah.
+
+Come to Pryar.
+Come to success.
+
+Allah is the Greatest.
+Allah is the Greatest.
+
+There is none worthy of worship except Allah.
+
+```
